@@ -1,0 +1,2 @@
+# Texnikaa
+maishiy texnika
